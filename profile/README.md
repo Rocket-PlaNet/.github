@@ -5,4 +5,4 @@
 |[Aster(김예원)](https://github.com/Yewon-dev)|[Daniel(김민성)](https://github.com/Daniel-kim-junior)|[Naro(김창헌)](https://github.com/changheonkim)|[Mona(이승인)](https://github.com/siiniii)|
 
 <br><br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Rocket-PlaNet/.github/assets/56240088/6283223c-ef98-41da-bbc0-d6f7d7631bf2" width="100"> 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://github.com/Rocket-PlaNet/.github/assets/56240088/6283223c-ef98-41da-bbc0-d6f7d7631bf2" width="100"> 
